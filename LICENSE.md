@@ -1,4 +1,4 @@
-# 
+# Enhance GIMP for PC | GIMP for Windows with top GIMP for PC | GIMP for Windows Preset | HDR-editing + 3D-editing, the #1 preset. Includes HDR-editing and 3D-editing for a smoother
 
 
 
